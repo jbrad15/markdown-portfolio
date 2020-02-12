@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Yikes
+2. Yoink
+3. Stonks
